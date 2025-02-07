@@ -1,1 +1,0 @@
-# Gallrey_photo
